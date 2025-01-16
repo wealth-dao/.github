@@ -16,5 +16,10 @@
 
 - [_Portfolio Secrets_](https://www.youtube.com/playlist?list=PLWUFvhKuc_5tD0NuFpppsQotuOj9T892C)
 - [_Stock Options Secrets_](https://www.youtube.com/playlist?list=PLWUFvhKuc_5u7Qm6Hj-ahiZ9_C0A5zKAE)
-- [_Fundamental Company Analysis Secrets_](https://www.youtube.com/playlist?list=PLWUFvhKuc_5vGmiWsKgmra0qI8cXOLxmE)
+- [_Fundamental Company Analysis_](https://www.youtube.com/playlist?list=PLWUFvhKuc_5vGmiWsKgmra0qI8cXOLxmE)
 
+### Select Others:
+
+- [_Social Intelligence Leadership_](https://www.youtube.com/playlist?list=PLWUFvhKuc_5sWkocNPTrB0bfAeFTWYwzo)
+- [_Beginner Blockchain Club_](https://www.youtube.com/playlist?list=PLWUFvhKuc_5sf6xhDONTEPOyrDtEn3wwm)
+- [_Select Decentralization_](https://www.youtube.com/playlist?list=PLWUFvhKuc_5uICfadww4PR76Rd2bl2MdT)
